@@ -1,0 +1,1 @@
+# Entrop-a-de-textos
